@@ -1,0 +1,2 @@
+# -HNKS26CNTT3_lamchudungluong_Session1_Ex01
+Shadowing Practice Submission
